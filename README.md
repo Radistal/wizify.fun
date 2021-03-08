@@ -1,0 +1,1 @@
+# wizify.fun
